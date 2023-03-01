@@ -1,5 +1,7 @@
-_______Group members_________
+_______5 Dislikes_________
 
-Salazar, Jeza Mae
-Sarigumba, Ron Albert
-Tutor, John Mhico 
+Clown
+War
+Racist
+Hate
+People
