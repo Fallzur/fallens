@@ -1,21 +1,11 @@
+_______Group members_________
 
-<<<<<<< HEAD
-
-
-
-
-
-
-
-_______My Likes_________
+Salazar, Jeza Mae
+Sarigumba, Ron Albert
+Tutor, John Mhico 
 
 GF
 Family
 Self
 Foods
 and FOods
-=======
-Salazar, Jeza Mae
-Sarigumba, Ron Albert
-Tutor, John Mhico 
->>>>>>> TutorJM
